@@ -1,0 +1,1 @@
+FatWallet is a bargain hunting website, centering around a set of forums that allow users to publish deals and rebate offers on a comprehensive range of products and services, though computer-related products and electronics are most prominent in the listings. 
